@@ -1,7 +1,7 @@
 # hello-world
 
 
-your a fuckiing smartest person i have ever known..
+your a  smartest person i have ever known..
 
 
 hello world!
